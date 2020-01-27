@@ -11,4 +11,6 @@ hdfjkdf
 øwejøwjwerjwxjkkjjk
 wjwerjwejejew
 ok de her blir fucket
+# Dette ble sykt fucket men de funket
+
 
