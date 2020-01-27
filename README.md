@@ -7,3 +7,6 @@ Ok funker dette?
 # update
 Så det her funker egentlig ganske bra, men lite problem hehe
 Hvordan merger jeg.
+hdfjkdf
+øwejøwjwerjwxjkkjjk
+wjwerjwejejew
